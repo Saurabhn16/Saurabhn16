@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **Software Development**
 
-- 👨‍💻 All of my projects are available at [https://saurabh-portfolio-9a2e0.web.app//?redirect=false](https://kkg-portfolio-d83bc.web.app/?redirect=false)
+- 👨‍💻 All of my projects are available at [https://saurabh-portfolio-9a2e0.web.app//?redirect=false](https://saurabh-portfolio-9a2e0.web.app)
 
 - 📫 How to reach me **nagpuresaurabh1610@gmail.com**
 
