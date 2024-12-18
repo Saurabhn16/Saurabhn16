@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **nagpuresaurabh1610@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIj9jL-THYqpif2neGaxTlFIVEfkgDRR/view?usp=drive_link](https://drive.google.com/file/d/1ZIj9jL-THYqpif2neGaxTlFIVEfkgDRR/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIj9jL-THYqpif2neGaxTlFIVEfkgDRR/view?usp=drive_link](https://drive.google.com/file/d/1uARXscPiBf6pKnPEU4VRGpbjPGbPNZbQ/view?usp=drive_link)
 
 - ⚡ Fun fact **I don't like Tea**
 
